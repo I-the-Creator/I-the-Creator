@@ -1,5 +1,5 @@
 
-This is a list of material that I recommend every rational being to evaluate:
+This is a list of material that I recommend every rational being evaluates:
 
 https://cdn.discordapp.com/attachments/722285929712320574/1020663839370518578/toaz.info-the-final-appeal-to-mankind-nikolai-levashov-pr_10ffe8d183e6ea208bcf60141c21cd19.pdf
 
