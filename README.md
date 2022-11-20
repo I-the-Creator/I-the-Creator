@@ -29,7 +29,7 @@ https://www.youtube.com/watch?v=gLFhCrTt-ZA
 
 https://www.youtube.com/watch?v=04gk2iq4p8Y
 
-If you have interest in communication, here is my discord:
+If you have interest in communicating, here is my discord:
 Ya Tvoretz#4536
 This means "I the Creator" in russian
 
